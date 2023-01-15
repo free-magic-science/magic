@@ -19,6 +19,8 @@
 
 罗素留言:https://www.bilibili.com/video/BV1jy4y177NG
 
+感觉这些文章还挺有趣的可以看 , 
+
 # 参考链接
 [布朗运动https://www.zhihu.com/topic/20054691/intro](https://www.zhihu.com/topic/20054691/intro)
 
